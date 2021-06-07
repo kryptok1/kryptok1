@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @kryptok1
-- 💻 I'm currently the Lead Dev for SafeMoon Cash!
 - 👀 I’m interested in changing the world, one curly boi at a time {
 - 🌱 I’m always learning ...
 - 💞️ I’m looking to collaborate on anything, I'm open minded and available for hire!
